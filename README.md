@@ -1,1 +1,1 @@
-# rsschool-cv
+https://vitaliythekeyboardist.github.io/rsschool-cv/cv
